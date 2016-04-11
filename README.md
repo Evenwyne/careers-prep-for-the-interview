@@ -22,6 +22,12 @@ If you’re interviewing at a big corporation and you have a recruiter helping y
 
 ![StartupOutfit2](https://s3.amazonaws.com/learn-verified/StartupInterviewOutfit3.png)[Source](https://s3.amazonaws.com/learn-verified/StartupInterviewOutfit3.png)
 
+### Examples of Corporate Interview Outfits
+
+![Corporate Interview Outfit](https://s3.amazonaws.com/learn-verified/CorporateInterviewOutfit.jpg)[Source](http://mypowerpose.com/what-to-wear-to-an-interview-corporate-formal-and-business-casual/) 
+
+![Corporate Interview Outfit 2](https://s3.amazonaws.com/learn-verified/CorporateInterviewOutift2.jpg) [Source](https://www.pinterest.com/explore/groomsmen-sweaters/)
+
 In all cases though, follow the guidelines below: 
 
 **WOMEN** 
