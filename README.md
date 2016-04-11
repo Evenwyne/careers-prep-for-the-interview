@@ -14,7 +14,13 @@ If you’re interviewing at a startup, don’t dress as casually as their employ
 
 If you’re interviewing at a big corporation and you have a recruiter helping you through the process, it is okay to ask that person what the dress code is if you’re not sure. 
 
-ADDDDDDDDDDDDD PICTURESSSSSSS HEREEEEEEEEE
+### Examples of Startup Interview Outfits
+
+![StartupOutfit1](https://s3.amazonaws.com/learn-verified/StartUp+Interview+Outfit.jpg)[Source](http://workplacewears.tumblr.com/)
+
+![StartupOutfit2](https://s3.amazonaws.com/learn-verified/StartupInterviewOutfit2.jpg)[Source](https://www.pinterest.com/thepacheragroup/men-s-silicon-valley-startup-interviewing/)
+
+![StartupOutfit2](https://s3.amazonaws.com/learn-verified/StartupInterviewOutfit3.png)[Source](https://s3.amazonaws.com/learn-verified/StartupInterviewOutfit3.png)
 
 In all cases though, follow the guidelines below: 
 
