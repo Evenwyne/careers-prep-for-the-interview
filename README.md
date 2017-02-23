@@ -33,7 +33,7 @@ In all cases though, follow the guidelines below:
 **WOMEN** 
 - No sneakers
 - No tank tops without a blazer or cardigan over it
-- Conceal cleavage
+
 
 **MEN**
 - No sneakers
@@ -94,3 +94,5 @@ Ideally, bring your resume with you to the interview in a folder or portfolio. T
 Carry a pen and paper with you to take notes on pertinent topics discussed that you want to remember to ask questions about later in the interview. This is also helpful so you can remember specific topics that you will mention in your thank you note/s. 
 
 <p data-visibility='hidden'>View <a href='https://learn.co/lessons/careers-prep-for-the-interview'>Careers Prep for the Interview </a> on Learn.co and start learning to code for free.</p>
+
+<p class='util--hide'>View <a href='https://learn.co/lessons/careers-prep-for-the-interview'>Preparation for the Interview</a> on Learn.co and start learning to code for free.</p>
