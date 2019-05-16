@@ -4,13 +4,15 @@ Follow this checklist below to know what you need to do the evening before and d
 
 ## What to Wear
 
-There are differences between how you should dress for an interview with a startup or tech company and what you should wear if you’re interviewing with a corporation, government entity, or a non-profit. Startups tend to be very casual (people wear jeans and t-shirts and shorts in the summer). Corporations, nonprofits, and government agencies tend to be either business casual (no jeans or sneakers, but no suit jacket necessary) or business professional. Corporations, financial services institutions, and law firms almost always require business attire (a suit).
+There are differences between how you should dress for an interview with a startup or established company and what you should wear if you’re interviewing with a corporation, government entity, agency, or a non-profit. Startups and agencies tend to be very casual (people wear jeans and t-shirts and shorts in the summer). Corporations, nonprofits, and government agencies tend to be either business casual (no jeans or sneakers, but no suit jacket necessary) or business professional. Corporations, financial services institutions, and law firms almost always require business attire (a suit).
 
 In your interview, you want to dress slightly more formal (in the case of startups) or as formal as (in the case of corporations that require suits) your interviewers.
 
 The easiest way to quickly judge what the dress code is at a company is to go to the company’s website and see how people are dressed in the photos there.
 
 If you’re interviewing at a startup, don’t dress as casually as their employees. Up your wardrobe game a bit by putting a blazer over your blouse/button up shirt and wear leather shoes rather than sneakers.
+
+With creative agencies and some startups, they prefer a more casual and creative dress code so use your discretion on how to appeal to the hiring manager or team of that kind of company.
 
 If you’re interviewing at a big corporation and you have a recruiter helping you through the process, it is okay to ask that person what the dress code is if you’re not sure.
 
@@ -92,5 +94,3 @@ Ideally, bring your resume with you to the interview in a folder or portfolio. T
 ## Bring a Pen and Paper
 
 Carry a pen and paper with you to take notes on pertinent topics discussed that you want to remember to ask questions about later in the interview. This is also helpful so you can remember specific topics that you will mention in your thank you note/s. 
-
-<p data-visibility='hidden'>View <a href='https://learn.co/lessons/careers-prep-for-the-interview'>Careers Prep for the Interview </a> on Learn.co and start learning to code for free.</p>
