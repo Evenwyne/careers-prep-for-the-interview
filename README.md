@@ -42,7 +42,7 @@ In all cases though, follow the guidelines below:
 
 Lay out your interview wardrobe the day before. This includes not only your interview outfit itself, but also your shoes, the bag you will be carrying your resume portfolio in, etc. Also make sure that all elements of your outfit itself are 100% clean and pressed, your shoes are shined (yes, interviewers look for this), etc.
 
-Get your interview clothes pressed/dry cleaned done now if need be. Looking messy is an immediate disqualification. If you don’t have an appropriate interview outfit, then purchase one. As first impression is everything, this is not a cost but an investment in your career development.
+Get your interview clothes pressed/dry cleaned if need be. Looking messy is an immediate disqualification. If you don’t have an appropriate interview outfit, then purchase one. As first impression is everything, this is not a cost but an investment in your career development.
 
 
 ## Plan Your Route in Advance
